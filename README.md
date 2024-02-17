@@ -1,1 +1,1 @@
-# Recursos-da-IA-Generativa-DIO
+# Recursos-da-IA-Generativa
